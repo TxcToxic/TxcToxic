@@ -2,7 +2,7 @@
 
 I'm [-TOXIC-#1835](https://discord.com/users/856594604812009502/)
 
-**Information:**
+# Information:
 * 14 y/o
 * Germany
 * Hobby: Programming
