@@ -2,4 +2,4 @@
 
 Welcome to my Github Profile!
 
-Discord: -TOXIC-#1835
+Discord: toxic1835
